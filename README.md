@@ -1,4 +1,4 @@
-### THOU SHALT NOT PAST❗️❗️❗️
+### THOU SHALT NOT PASS❗️❗️❗️
 
 just kidding ;)
 
